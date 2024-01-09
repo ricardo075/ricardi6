@@ -1,0 +1,2 @@
+# ricardi6
+APRENDER PARA UM NOVO FUTURO
